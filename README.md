@@ -3,5 +3,5 @@ Knowing and growing on Git&amp;Github
 
 me myself like to Explore, you can call me FP
 
-Hi, nothing to say! Just trying to find a way out to go ahead.
+Nothing left to to say! Just trying to find a way out to go ahead.
 
